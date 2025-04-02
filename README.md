@@ -1,1 +1,1 @@
-# sadecebenioku
+baslikyok yazan yeri oku
